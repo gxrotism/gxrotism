@@ -1,6 +1,6 @@
 <p align="center">
-<img width="648" height="378" alt="Screenshot 2026-05-29 at 22 54 26" src="https://github.com/user-attachments/assets/0882c7d4-29e7-433c-86a2-aa2bfb813a70" />
+<img <img width="1512" height="695" alt="Screenshot 2026-06-15 at 18 04 12" src="https://github.com/user-attachments/assets/bbd55086-d83e-4b93-8183-a461dd7b57ed" />
 </p>
 <p align="center">
-Still work in process but I will let you know that I'm a Noli selfshipper, I'm alright with most of the ships included them!
+Still work in process but I will let you know that I'm only accept friend request when we're mutual or having more further interactions, I lowkey dislike being a listfriend decoration.
 </p>
