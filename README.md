@@ -8,7 +8,7 @@
 
 <i> ⟢ I’m hyper-sharing Jard from Evade - Roblox, free to interact if you want XP</i><br></br>
 <i> ⟢ Mostly afk to draw/study/play or simply I’m being shy (*´ー｀*) </i><br><br>
-<img alt="silly duo" height="140" src="https://github.com/user-attachments/assets/c9ec0b2a-3b47-4a62-b574-eae6c32db570" /> <br></br>
+<img alt="silly duo" height="340" src="https://github.com/user-attachments/assets/c9ec0b2a-3b47-4a62-b574-eae6c32db570" /> <br></br>
 <div align = left>
 
 **DO NOT INTERACT ⚠︎**
